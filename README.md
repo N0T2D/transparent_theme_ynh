@@ -1,1 +1,0 @@
-To activate this theme :
